@@ -1,0 +1,1 @@
+![Chicagotypographic society] (Chicagotypography.jpg)
